@@ -3,7 +3,7 @@
 
 <img align="right" alt="GIF" height="256px" src="https://www.moshimoshi-nippon.jp/wp/wp-content/uploads/2019/03/ce2c5d872439fecd6a0eead73628db8f.jpg" />
 
-![Profile views](https://gpvc.arturio.dev/SomnathDas)  ![Last Modified](https://img.shields.io/github/last-commit/SomnathDas/SomnathDas?style=flat)
+![Profile views](https://gpvc.arturio.dev/ismailofficial)  ![Last Modified](https://img.shields.io/github/last-commit/ismailofficial/ismailofficial?style=flat)
 
 **Learning stuffs while vibing to Ling Tosite Sigure music**
 
@@ -17,9 +17,9 @@
 
 - 🌱 I’m currently learning **Mathematics** 
 
-- 📫 Contact me through => **ak89545@gmail.com** 
+- 📫 Contact me through => **fb832.01@gmail.com** 
 
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=SomnathDas&theme=dark&show_icons=true)  
+![GitHub stats](https://github-readme-stats.vercel.app/api?username=ismailofficial&theme=dark&show_icons=true)  
 
 ## Follow me on `ヾ(・ω・)ノヾ(・ω・)ノ゛`
 **Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/ismailofficial) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>](https://www.instagram.com/ismailreal.id) | **Twitter** [<img src="https://img.icons8.com/nolan/240/twitter.png" alt='twitter' height='32'>](https://twitter.com)  
