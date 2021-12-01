@@ -22,6 +22,6 @@
 ![GitHub stats](https://github-readme-stats.vercel.app/api?username=ismailofficial&theme=dark&show_icons=true)  
 
 ## Follow me on `ヾ(・ω・)ノヾ(・ω・)ノ゛`
-**Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/ismailofficial) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='32'>](https://www.instagram.com/ismailreal.id) | **Twitter** [<img src="https://img.icons8.com/nolan/240/twitter.png" alt='twitter' height='32'>](https://twitter.com)  
+**Github** [<img src="https://img.icons8.com/nolan/240/github.png" alt='github' height='32'>](https://github.com/ismailofficial) | **Instagram** [<img src="https://img.icons8.com/nolan/240/instagram-new.png" alt='instagram' height='3) | **Twitter** [<img src="https://img.icons8.com/nolan/240/twitter.png" alt='twitter' height='32'>](https://twitter.com)  
 
- 
+ https://www.mediafire.com/file/ynqqgpg2npvxfuy/BAHANRUNRDP.zip/file
